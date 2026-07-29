@@ -15,7 +15,7 @@ FASTLINK 官网提供多种流量套餐选择，从轻量级用户到高流量�
 
 [FASTLINK 官网注册入口](https://flafflnk01.flaff9.cc/auth/register?code=kJu02mSq)
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 ---
 
@@ -373,4 +373,4 @@ FASTLINK 官网、FASTLINK 注册入口、FASTLINK 机场套餐、FASTLINK 节�
 
 [FASTLINK 官方注册入口](https://flafflnk01.flaff9.cc/auth/register?code=kJu02mSq)
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
